@@ -14,4 +14,11 @@ By leveraging the power of blockchain technology through NFTs, our project aims 
 
 ## Let's Connect and Empower Women Together! 🌟
 
-![alt text](image.png)
+
+
+
+https://github.com/Women-Chat/women-chat/assets/130845046/8f1f9a80-7faf-451b-a4d4-af5f962e0704
+
+
+https://github.com/Women-Chat/women-chat/assets/130845046/bace979b-5a2d-4304-9091-a7fce3e9fc4f
+
